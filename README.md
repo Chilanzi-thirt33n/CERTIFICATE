@@ -1,2 +1,2 @@
 # CERTIFICATE
-cousera certifications
+cousera certifications and degrees 
